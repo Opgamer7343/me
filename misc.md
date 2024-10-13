@@ -1,0 +1,1 @@
+i'm thinking of sucidal i just lost so many friends, best friends i cant make new friends anymore because all of them betray me, make fun of me after betraying me, dont like that i exploit on roblox, roast me for being a indian after betraying me i cant just no i'm gonna sucide some day unless someone stops me
